@@ -4,3 +4,4 @@ repositori untuk menyimpan rencana najwa kedepannya
 -konsisten dalam studi independent
 - semester 6 sudah harus nyusun
 - desember 2022 wisuda
+- harus lolos beasiswa cmb niaga
